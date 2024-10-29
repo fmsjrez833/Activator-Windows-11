@@ -1,4 +1,5 @@
 # Activator-Windows-11
+I use this KMSAuto activator to activate Windows 11 and Office https://activators.pro/en/
 
 Activator Windos 11 Pro
                                                                   #Russian
